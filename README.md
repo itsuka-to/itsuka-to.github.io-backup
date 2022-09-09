@@ -1,2 +1,2 @@
-# itsuka-to.github.io
+# Tomoya Itsuka
 
