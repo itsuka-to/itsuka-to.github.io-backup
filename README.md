@@ -1,2 +1,0 @@
-# Tomoya Itsuka
-
